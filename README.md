@@ -27,5 +27,5 @@ My GitHub Profile README
 - Gain professional experience through internships and full-time roles
 
 ## Connect with me
-- LinkedIn: [Nee LinkedIn Profile Link]
+- LinkedIn: [add chestha]
 - Email: [ganeshchinthala451@gmail.com]
